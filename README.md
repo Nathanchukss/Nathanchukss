@@ -1,4 +1,4 @@
-👋🏽 Hi,I'm Chukwudi Nathan Nwaokocha 
+👋🏽 Hi, I'm Chukwudi Nathan Nwaokocha 
 --------------------------------------------------------------------------------------------------------------------------------------------------------
 I am a Graduate Computer Science Honors student at Georgia State University. 
 
